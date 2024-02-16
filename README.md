@@ -1,1 +1,1 @@
-# Chguschool
+# Chuvsu.school
